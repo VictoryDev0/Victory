@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Papa-Gogo
+- 👋 Hi, I’m @VictoryDev0
 - 👀 I’m interested in DeFi & NFTs
 - 🌱 I’m currently getting to know new people in the DeFi space
 - 💞️ I’m looking to collaborate on world-class DeFi projects that bring 100million new users to the space.
